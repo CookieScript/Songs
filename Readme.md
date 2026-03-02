@@ -13,3 +13,4 @@ original artists and creators. The songs are sourced from YouTube.
 - Lvbel C5 / Akdo — Cok Pardon
 - Basshunter — DotA
 - SNOW STRIPPERS — Under Your Spell
+- frou frou — A New Kind Of Love
