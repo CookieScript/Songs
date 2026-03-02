@@ -6,6 +6,10 @@ download them and load them into their own games or projects.
 I do not own or create these songs. All credit goes to the
 original artists and creators. The songs are sourced from YouTube.
 
+If you are the owner of any content and would
+like it removed, please contact me on Discord: @dino069895
+and it will be removed as soon as possible.
+
 ## Songs Added
 - Ark Patrol / Veronika Redd — Let Go
 - Petit Biscuit — Sunset Lover
