@@ -8,3 +8,4 @@ original artists and creators. The songs are sourced from YouTube.
 
 ## Songs Added
 - Ark Patrol / Veronika Redd — Let Go
+- Petit Biscuit — Sunset Lover
