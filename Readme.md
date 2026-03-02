@@ -11,3 +11,4 @@ original artists and creators. The songs are sourced from YouTube.
 - Petit Biscuit — Sunset Lover
 - Wifiskeleton — Nope Your Too Late I Already Died
 - Lvbel C5 / Akdo — Cok Pardon
+- Basshunter — DotA
