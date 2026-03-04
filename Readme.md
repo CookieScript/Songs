@@ -25,3 +25,4 @@ and it will be removed as soon as possible.
 - SALES WORLD TOUR PART III — Pope Is a Rockstar
 - proderics / melodybloom — Strangers
 - Hanser / (Dj阿幻remix) — 室内系的TrackMaker
+- Susumu Hirasawa — Paprika Parade
