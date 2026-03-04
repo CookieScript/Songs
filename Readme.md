@@ -24,7 +24,7 @@ and it will be removed as soon as possible.
 - PONCHET — พชอบหนทสดเลย
 - SALES WORLD TOUR PART III — Pope Is a Rockstar
 - proderics / melodybloom — Strangers
-- Hanser / (Dj阿幻remix) — 室内系的TrackMaker
+- Hanser / (Dj阿幻 remix) — 室内系的TrackMaker
 - Susumu Hirasawa — Paprika Parade
 - Passion — Pit Sleepyhead
 - øneheart — apathy
@@ -33,3 +33,4 @@ and it will be removed as soon as possible.
 - Melanie Martinez — Cake, Play Date
 - Crystal Castles — it fit when i was a kid
 - Yagih Mael — Mood lofi
+- Freddie dredd, (crayons remix) — Opaul lofi remix
