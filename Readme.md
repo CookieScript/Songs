@@ -34,3 +34,4 @@ and it will be removed as soon as possible.
 - Crystal Castles — it fit when i was a kid
 - Yagih Mael — Mood lofi
 - Freddie dredd, (crayons remix) — Opaul lofi remix
+- Luci4 — Kurxxed Emeraldz
