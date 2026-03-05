@@ -12,6 +12,9 @@ and it will be removed as soon as possible.
 
 Please note that some of the songs included in this repository may contain themes such as violence, strong language or other mature elements within their lyrics Listener discretion is advised especially if the songs are being used in projects intended for younger audiences.
 
+## Sounds Added
+- therelaxedguy — Gentle Rain
+
 ## Songs Added
 - Ark Patrol / Veronika Redd — Let Go
 - Petit Biscuit — Sunset Lover
