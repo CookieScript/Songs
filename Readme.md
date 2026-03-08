@@ -44,3 +44,4 @@ Please note that some of the songs included in this repository may contain theme
 - Demi Lovato — Cool for the Summer
 - Gwen Stefani — Luxurious
 - Rich Amiri — OUTTA THERE
+- Gym Class Heroes — Cupids Chokehold
