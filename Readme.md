@@ -42,3 +42,4 @@ Please note that some of the songs included in this repository may contain theme
 - Freddie dredd, (crayons remix) — Opaul lofi remix
 - Luci4 — Kurxxed Emeraldz
 - Demi Lovato — Cool for the Summer
+- Gwen Stefani — Luxurious
