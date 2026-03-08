@@ -43,3 +43,4 @@ Please note that some of the songs included in this repository may contain theme
 - Luci4 — Kurxxed Emeraldz
 - Demi Lovato — Cool for the Summer
 - Gwen Stefani — Luxurious
+- Rich Amiri — OUTTA THERE
