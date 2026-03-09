@@ -48,3 +48,4 @@ Please note that some of the songs included in this repository may contain theme
 - Cult Member — U Werent Here I Really Miss You
 - Alice Deejay — Better Off Alone
 - Kali Uchis — Moonlight
+- Lumi Athena — SMOKE IT OFF!
