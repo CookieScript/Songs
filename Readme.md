@@ -19,7 +19,7 @@ Please note that some of the songs included in this repository may contain theme
 ## Songs Added
 - Ark Patrol / Veronika Redd — Let Go
 - Petit Biscuit — Sunset Lover
-- Wifiskeleton — Nope Your Too Late I Already Died
+- Wifiskeleton — Nope Your Too Late I Already Died, Loser club
 - Lvbel C5 / Akdo — Cok Pardon
 - Basshunter — DotA
 - SNOW STRIPPERS — Under Your Spell
@@ -49,3 +49,4 @@ Please note that some of the songs included in this repository may contain theme
 - Alice Deejay — Better Off Alone
 - Kali Uchis — Moonlight
 - Lumi Athena — SMOKE IT OFF!
+- Lightris — kwik trip
