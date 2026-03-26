@@ -50,3 +50,4 @@ Please note that some of the songs included in this repository may contain theme
 - Kali Uchis — Moonlight
 - Lumi Athena — SMOKE IT OFF!
 - Lightris — kwik trip
+- CSVZX — Illusionary Daytime x Trackmaker (Douyin)
