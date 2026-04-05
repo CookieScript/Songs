@@ -25,7 +25,7 @@ Please note that some of the songs included in this repository may contain theme
 - SNOW STRIPPERS — Under Your Spell
 - frou frou — A New Kind Of Love
 - Erika — I Dont Know
-- Doja Cat — Woman, Say So
+- Doja Cat — Woman, Say So, Paint The Town Red
 - TIA / Lê Thiện Hiếu — Ai Đưa Em Về
 - PONCHET — พชอบหนทสดเลย
 - SALES WORLD TOUR PART III — Pope Is a Rockstar
