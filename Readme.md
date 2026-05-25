@@ -54,3 +54,7 @@ Please note that some of the songs included in this repository may contain theme
 - Leat'eq — Tokyo
 - grindgwap — MISSION 18
 - гренка — vein
+- Charly Black — You're Perfect
+- Lil Yawh, Cryjng — Sun Down Im Up
+- Amaarae — SAD GIRLZ LUV MONEY Remix ft Kali Uchis
+- FloyyMenor, Cris MJ — Gata Only
