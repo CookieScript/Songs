@@ -59,3 +59,5 @@ Please note that some of the songs included in this repository may contain theme
 - Amaarae — SAD GIRLZ LUV MONEY Remix ft Kali Uchis
 - FloyyMenor, Cris MJ — Gata Only
 - Justin Bieber — That Should Be Me ft. Rascal Flatts
+- SUICIDAL-IDOL — Right Next 2 U
+- The Smiths — Heaven Knows I'm Miserable Now
