@@ -7,7 +7,7 @@ I do not own or create these songs. All credit goes to the
 original artists and creators. The songs are sourced from YouTube.
 
 If you are the owner of any content and would
-like it removed, please contact me on Discord: @dino069895
+like it removed, please contact me on Discord: @tssodino
 and it will be removed as soon as possible.
 
 Please note that some of the songs included in this repository may contain themes such as violence, strong language or other mature elements within their lyrics Listener discretion is advised especially if the songs are being used in projects intended for younger audiences.
