@@ -13,10 +13,12 @@ and it will be removed as soon as possible.
 Please note that some of the songs included in this repository may contain themes such as violence, strong language or other mature elements within their lyrics Listener discretion is advised especially if the songs are being used in projects intended for younger audiences.
 
 ## Sounds Added
+```
 - liecio — calming rain
-
+```
 
 ## Songs Added
+```
 - Ark Patrol / Veronika Redd — Let Go
 - Petit Biscuit — Sunset Lover
 - Wifiskeleton — Nope Your Too Late I Already Died, Loser club
@@ -62,3 +64,4 @@ Please note that some of the songs included in this repository may contain theme
 - SUICIDAL-IDOL — Right Next 2 U
 - The Smiths — Heaven Knows I'm Miserable Now
 - Blaulicht 112 — Besorg's Mir (Mara5 ‘Klubb’ Remix)
+```
