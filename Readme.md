@@ -64,4 +64,7 @@ Please note that some of the songs included in this repository may contain theme
 - SUICIDAL-IDOL — Right Next 2 U
 - The Smiths — Heaven Knows I'm Miserable Now
 - Blaulicht 112 — Besorg's Mir (Mara5 ‘Klubb’ Remix)
+- Sia — Snowman, Cheap Thrills
+- doja cat — 4 morant (better luck next time)
+- Siouxxie — Masquerade
 ```
